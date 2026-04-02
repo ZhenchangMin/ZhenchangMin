@@ -9,4 +9,4 @@ I’m primarily seeking **AI R&D / Full-Stack AI developer internships**, and re
 
 ### 📫 Links
 - Email: mmm493027@gmail.com
-- Bilibili: [https://space.bilibili.com/xxx](https://space.bilibili.com/474264959?spm_id_from=333.1007.0.0)
+- Bilibili: [https://space.bilibili.com/](https://space.bilibili.com/474264959?spm_id_from=333.1007.0.0)
